@@ -1,1 +1,0 @@
-# Pop-it-trading-script-
